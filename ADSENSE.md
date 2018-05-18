@@ -1,4 +1,4 @@
-** These Changelogs are only for the Cheat Loader and for the Counterstrike:GlobalOffensive Cheat! [ADSENSE] **
+** These Changelogs are only for the Cheat Loader and for the Counter-Strike: Global Offensive Cheat! [ADSENSE] **
 
 ◆──────────────────────────────◆
   ➥ LAST UPDATE: 18.05.1018
